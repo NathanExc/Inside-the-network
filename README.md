@@ -1,6 +1,4 @@
-https://github.com/user-attachments/assets/0d82094b-31ff-4505-a7fb-b4d0e16bb152
-Uploading Serial Experiments Lain.mp4…
-
+https://github.com/user-attachments/assets/c057cff5-c152-4c9c-bf22-a2e1be717dda
 
 
 
